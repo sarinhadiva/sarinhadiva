@@ -9,4 +9,4 @@ Estou no GitHub principalmente para as seguintes ações:
 Para entrar em contato comigo, acesse:
  @_sarademiti_ 📷
 
-![](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTwZgcxFC8wJF2d6bxovXtwD8XjabpxwpUFnw&s)
+![](https://pa1.aminoapps.com/6523/4c570583639f0ba2926fd68abeec3101eec898da_hq.gif)
